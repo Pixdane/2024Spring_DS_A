@@ -2,7 +2,7 @@
 
 Updated 2027 GMT+8 Mar 5, 2024
 
-2024 spring, Complied by ==靳禹安 化学与分子工程学院==
+2024 spring, Complied by
 
 
 
